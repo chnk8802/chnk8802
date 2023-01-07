@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @naveengithub02
 - 👀 I’m interested in Fullstack web developement.
-- 🌱 I’m currently learning NestJS
+- 🌱 I’m currently learning everything.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @ chnk8802@gmail.com
 
