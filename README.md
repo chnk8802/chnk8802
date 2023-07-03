@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @chnk8802
 - 👀 I’m interested in Reading codes:]
 - 🌱 I’m currently learning everything.
-- 💞️ I’m looking to collaborate on anything almost.
 - 📫 How to reach me @ chnk8802@gmail.com.
