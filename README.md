@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @chnk8802
+- ##👋 Hi, I’m Naveeen Kumar
 - 👀 I’m interested in Reading codes:]
-- 🌱 I’m currently learning everything.
 - 📫 How to reach me @ chnk8802@gmail.com.
