@@ -1,3 +1,3 @@
-- ##👋 Hi, I’m Naveeen Kumar
+- # 👋 Hi, I’m Naveeen Kumar
 - 👀 I’m interested in Reading codes:]
 - 📫 How to reach me @ chnk8802@gmail.com.
